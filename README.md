@@ -5,7 +5,7 @@
 - 📫 Cómo contactarme en mis redes sociales:
 - Facebook:@mabelquispeolivera
 - Instagram: https://www.youtube.com/@encodedmabel
-- TikTok: @encoded o @Mabelolivera10
+- TikTok: https://www.tiktok.com/@encodedmabel
 - Youtube: https://www.youtube.com/@encodedmabel
 - Linkedin: https://www.linkedin.com/in/mabelquispeolivera/
 - Twitter: https://twitter.com/mabel_Q_O
