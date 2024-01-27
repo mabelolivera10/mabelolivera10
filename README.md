@@ -4,7 +4,7 @@
 - 💞️ Busco colaborar contigo
 - 📫 Cómo contactarme en mis redes sociales:
 - Facebook:@mabelquispeolivera
-- Instagram: https://www.youtube.com/@encodedmabel
+- Instagram: https://www.instagram.com/mabelolivera10/
 - TikTok: https://www.tiktok.com/@encodedmabel
 - Youtube: https://www.youtube.com/@encodedmabel
 - Linkedin: https://www.linkedin.com/in/mabelquispeolivera/
