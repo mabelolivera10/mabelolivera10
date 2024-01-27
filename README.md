@@ -4,7 +4,10 @@
 - 💞️ Busco colaborar contigo
 - 📫 Cómo contactarme en mis redes sociales:
 - Facebook:@mabelquispeolivera
-- Instagram: @mabelolivera10
+- Instagram: https://www.youtube.com/@encodedmabel
 - TikTok: @encoded o @Mabelolivera10
-- Youtube: @encoded o @mabelquispeolivera
+- Youtube: https://www.youtube.com/@encodedmabel
+- Linkedin: https://www.linkedin.com/in/mabelquispeolivera/
+- Twitter: https://twitter.com/mabel_Q_O
 - CodeOpen: https://codepen.io/mabelolivera10
+- web: https://encoded.pe/
