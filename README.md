@@ -3,7 +3,7 @@
 - 🌱 Actualmente estoy aprendiendo distintos lenguajes de programación
 - 💞️ Busco colaborar contigo
 - 📫 Cómo contactarme en mis redes sociales:
-- Facebook:@mabelquispeolivera
+- Facebook: https://www.facebook.com/mabelquispeolivera/
 - Instagram: https://www.instagram.com/mabelolivera10/
 - TikTok: https://www.tiktok.com/@encodedmabel
 - Youtube: https://www.youtube.com/@encodedmabel
