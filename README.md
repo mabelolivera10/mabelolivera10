@@ -19,6 +19,6 @@ Puedes encontrarme en mis redes sociales:
 - [ LinkedIn] (https://www.linkedin.com/in/mabelquispeolivera/ )
 - [Twitter] (https://twitter.com/mabel_Q_O)
 - [CódigoAbrir] (https://codepen.io/mabelolivera10)
-- [Sitio Web] (https://codificado.pe/)
+- [Sitio Web] (https://encoded.pe/)
 
 ¡Espero poder conectarme contigo pronto y colaborar en futuros proyectos! 😊
